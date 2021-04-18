@@ -1,0 +1,1 @@
+first we need to take a glass of milk and break the kit kat into pieces and add to the milk and add 1tsp of coco powder and mix it well and your kit kat milk shake is ready. 
